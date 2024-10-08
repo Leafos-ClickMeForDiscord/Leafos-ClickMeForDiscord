@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Leafos-ClickMeForDiscord
 - 👀 I’m interested in PonyTown, and other fandoms! Ask me about them ^^
 - 🌱 I’m currently learning how to be at peace
-- 📫 How to reach me: on Discord please!
+- 📫 How to reach me: on Discord please! https://disboard.org/server/1286039392489832621
 - 😄 Pronouns: She/They
 - ⚡ Fun fact: I studied psychology!
 
