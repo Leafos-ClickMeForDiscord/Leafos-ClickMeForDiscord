@@ -3,9 +3,11 @@
 - 🌱 I’m currently learning how to be at peace
 - 📫 How to reach me: on Discord please!
 - 😄 Pronouns: She/They
-- ⚡ Fun fact: I studied Psychology!
+- ⚡ Fun fact: I studied psychology!
 
-![pony-town-Minty-stand-blinking-padded-16x(1)](https://github.com/user-attachments/assets/a489acff-6039-4d2d-91b5-7a44f9f4352e)
+- I also go by Minty!
+![pony-town-Minty-stand-blinking-padded-16x-ezgif com-resize](https://github.com/user-attachments/assets/cda6fef6-cff5-461c-8b68-7aa271c3143e)
+
 
 <!---
 Leafos-ClickMeForDiscord/Leafos-ClickMeForDiscord is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
