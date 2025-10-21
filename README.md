@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Leafos
 - 👀 I’m interested in PonyTown, FFXIV, and other fandoms! Ask me about them ^^
 - 🌱 I love Bulbasaur, stars and the colour green
-- 📫 How to reach me: on Discord please! Yumi_Leafos
+- 📫 Discord: yumi_leafos
 - 😄 Pronouns: She/They
 - ⚡ Fun fact: I studied psychology!
 
