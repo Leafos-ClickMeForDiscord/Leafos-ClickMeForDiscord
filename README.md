@@ -6,7 +6,8 @@
 - ⚡ Fun fact: I studied psychology!
 
 - I also go by Minty!
-![pony-town-Minty-stand-blinking-padded-16x-ezgif com-resize](https://github.com/user-attachments/assets/cda6fef6-cff5-461c-8b68-7aa271c3143e)![pony-town-Minty-stand-blinking-padded-16x](https://github.com/user-attachments/assets/9629be3b-6692-4899-a850-bf03fa15dbe2)
+![pony-town-Minty-stand-blinking-padded-16x-ezgif com-resize](https://github.com/user-attachments/assets/cda6fef6-cff5-461c-8b68-7aa271c3143e)![pony-town-Minty-stand-blinking-padded-6x(1)](https://github.com/user-attachments/assets/6aefa8e3-4c03-4b60-aac0-5d6dd74b66a4)
+
 
 
 
